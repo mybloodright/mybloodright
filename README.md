@@ -14,5 +14,6 @@ im a bit shy and quiet or not wanting to talk most of the time,
 <p align="center">carrd coming soon, or ask me for my socials!
 <img src="https://gifcity.carrd.co/assets/images/gallery01/9e656c08.gif?v=e3c0bc0f"/>
 
-<p align="center"><img width="209" height="120" alt="image" src="https://github.com/user-attachments/assets/135786ed-e011-41ea-b55b-c074961fd4d1" />
+<p align="center"><img width="112" height="72" alt="image" src="https://github.com/user-attachments/assets/4bcf7d81-8252-48ce-bc00-9f6354b77119" />
+
 
