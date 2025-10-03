@@ -1,6 +1,9 @@
 
-<img width="1280" height="143" alt="e5a04961" src="https://github.com/user-attachments/assets/ef3bdaec-bfba-4a97-9f11-7376a25dae2e" />
-<p align="center"><img width="530" height="30" alt="9757df70" src="https://github.com/user-attachments/assets/e4f7ebd9-3b77-4365-adbd-fb6805bd2c08" />  
+<p align="center"><img width="900" height="102" alt="image" src="https://github.com/user-attachments/assets/701516a0-843b-4994-a797-e9c487506e05" />
+
+<p align="center"><img width="643" height="45" alt="image" src="https://github.com/user-attachments/assets/25141d65-9b3e-4337-9f4e-9fc02995eca9" />
+
+ 
 <p align="center">this is for ponytown<br/>
 <p align="center">whisper me to int, im offtab alot and wont be able to see public chat unless we're friended.<br/> 
 im a bit shy and quiet or not wanting to talk most of the time,  
