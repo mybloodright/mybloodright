@@ -4,15 +4,13 @@
 
  
 <p align="center">this is for ponytown<br/>
-<p align="center">whisper me to int, im offtab alot and wont be able to see public chat unless we're friended.<br/> 
-im a bit quiet or not wanting to talk most of the time,  
-  so its nothing against you 
-  <p align="center"> i dont accept random friend rqs, let me know if you do and i'll accept, we might have to talk a little first before i accept as well.
-<p align="center"> if you're under 16 please don't interact with me — i'll hide you. i have no dni as i hide freely and block freely, dont ask other people to tell me to unhide you. i am also on the 18+ server for a reason.
-<p align="center">laying by me is okay! — just keep ship interactions away, i have a partner and im uncomfortable with flirting unlike half of the people on here. i love my stupid boyfriend!! xoxo
-<p align="center">ask me for my socials! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/22bf9f94-6a22-4621-98a7-3f12a14ada2f" />
-
-
+<p align="center">whisper me to int, im offtab alot and wont be able to see public chat unless we're friended 
+<p align="center"> i dont accept random friend rqs
+<p align="center"> if you're under 16 im sending u to the banlands
+<p align="center">c + h is ok unless im with someone already
+<p align="center"> int with me at ur own risk, i indulge in "problematic" media
+<p align="center"> i have no dni i block/hide freely. LOL!
+<p align="center">ask me for my socials, ok? ok
 
 
 
