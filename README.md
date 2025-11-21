@@ -4,10 +4,10 @@
 
 <p align="center">whisper me to int, im offtab alot and wont be able to see public chat unless we're friended 
 <p align="center"> i dont accept random friend rqs
-<p align="center"> if you're under 16 im sending u to the banlands
+<p align="center"> if you're under 16 im hiding you otherwise i have no dni
 <p align="center">c + h is ok unless im with someone already
 <p align="center"> int with me at ur own risk, i indulge in "problematic" media
-<p align="center"> i have no dni i block/hide freely lol
+<p align="center"> dont flirt with me i have a partner (i love u ellieee!)
 <p align="center">ask me for my socials, ok? ok
 
 <p align="center"><img width="170" height="112" alt="image" src="https://github.com/user-attachments/assets/fc115ea8-2c3a-4ca6-8e16-84606f6fe5b1" />
