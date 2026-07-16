@@ -4,9 +4,9 @@
 
 <p align="center"> (specifically for ponytown) whisper me to int, im offtab alot and wont be able to see public chat unless we're friended 
 <p align="center"> i dont accept random friend rqs
-<p align="center"> basic dni and -17 thank you
+<p align="center"> basic dni and 18+ thank you
 <p align="center"> dont flirt with me i have a partner (i love u elliot!)
-<p align="center">ask me for my socials, ok? ok
+<p align="center">ask me for my socials, ok? ok I FORGOT THIS EXISTED PLEASE LOOK AT MY STRAWPAGE THANK YOU
 
 <p align="center"><img width="170" height="112" alt="image" src="https://github.com/user-attachments/assets/fc115ea8-2c3a-4ca6-8e16-84606f6fe5b1" />
 
