@@ -3,7 +3,7 @@
 <img width="600" height="450" alt="image01" src="https://github.com/user-attachments/assets/d2bcc1da-c125-4fc1-aa4f-0c3218d216db" />
 
 <p align="center"> (specifically for ponytown) whisper me to int, im offtab alot and wont be able to see public chat unless we're friended 
-<p align="center"> i dont accept random friend rqs
+<p align="center"> i dont accept random friend rqs and dont spam follow if ur a minor ididnteven know that existed :sob: stupid
 <p align="center"> basic dni and 18+ thank you
 <p align="center"> dont flirt with me i have a partner (i love u elliot!)
 <p align="center">ask me for my socials, ok? ok I FORGOT THIS EXISTED PLEASE LOOK AT MY STRAWPAGE THANK YOU
