@@ -1,7 +1,6 @@
 
+<img src="https://file.garden/aoPuIWjYMisN1t02/ddronline.gif" alt="ok"> ask for socials
 
-<p align="center"> check my strawpage,
-my discord is slasherwoods ok ? OK
 
 
 
