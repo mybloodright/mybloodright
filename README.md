@@ -1,7 +1,7 @@
 
 <p align="center"> <img src="https://file.garden/aoPuIWjYMisN1t02/ddronline.gif" alt="ok"> 
 
-ask for socials </p>
+<p align="center"> ask for socials </p>
 
 
 
